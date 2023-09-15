@@ -1,1 +1,1 @@
-不玩原神
+<img src="https://gchat.qpic.cn/gchatpic_new/2729269812/681387376-2843892132-4A264C4A9732BAB817C6A1D6D7B7981A/0?term=2&amp;is_origin=1">
