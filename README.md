@@ -1,1 +1,1 @@
-<img src="https://gchat.qpic.cn/gchatpic_new/2729269812/681387376-2843892132-4A264C4A9732BAB817C6A1D6D7B7981A/0?term=2&amp;is_origin=1">
+<img src="https://bkimg.cdn.bcebos.com/pic/d043ad4bd11373f08202441b13595cfbfbedaa64aea3?x-bce-process=image/watermark,image_d2F0ZXIvYmFpa2UyNzI=,g_7,xp_5,yp_5/format,f_auto">
